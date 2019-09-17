@@ -7,8 +7,5 @@ try everything you can
 
 
 
-**88**
-***hhh 
-|jaja.   |jaja.    |hahaha|
-|--------|:-------:|-------:|
-|kaka.   |kakakakaka.  |lalala|
+** 88 * *
+*** hh
